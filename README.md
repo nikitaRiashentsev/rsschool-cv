@@ -1,2 +1,1 @@
-Nikita Riashentsev
-Discord: nikitaRiashentsev#5108
+https://nikitaRiashentsev.github.io/rsschool-cv/
